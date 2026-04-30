@@ -6,7 +6,9 @@
 basic criteria tbh, just dont be rude/creepy too me... 
 
 # Likes
-making art and crafts, emoticons, ragebaiting sometimes.. procrastinating, berdly.. Etc. 
+<img width="289" height="76" alt="1777587157341367185256829139429" src="https://github.com/user-attachments/assets/d5b08158-48cf-4d16-81b8-ddf587575bf9" />
+<img width="289" height="76" alt="17775872736271245928894975993091" src="https://github.com/user-attachments/assets/ac03bd92-4320-4e17-9fd9-afb2d3e0b238" />
+
 
 # Fandoms
 I'm in a lot rn #Multifandom -_-
