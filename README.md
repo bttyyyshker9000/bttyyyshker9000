@@ -4,4 +4,5 @@
 🍒𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚃𝚘 𝚖𝚢 𝙶𝚒𝚝𝚑𝚞𝚋!   
      𝙺𝚊𝚣𝚙𝚎𝚛 / 𝙹𝚊𝚔𝚎 / 𝙰𝚕𝚎𝚡
 
-[![Visit My Site](https://img.shields.io)](https://X.com)
+[![Twitter]
+
