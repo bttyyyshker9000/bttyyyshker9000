@@ -1,5 +1,6 @@
-this 𝚊𝚌𝚌𝚘𝚞𝚗𝚝 𝚒𝚜 𝚖𝚊𝚍𝚎 𝚏𝚘𝚛 𝙿𝚘𝚗𝚢𝚃𝚘𝚠𝚗.. 
+➤ this 𝚊𝚌𝚌𝚘𝚞𝚗𝚝 𝚒𝚜 𝚖𝚊𝚍𝚎 𝚏𝚘𝚛 𝙿𝚘𝚗𝚢𝚃𝚘𝚠𝚗.. 
 
+➤ he him . minor
 
 # Bio
 <img width="289" height="76" alt="1777587157341367185256829139429" src="https://github.com/user-attachments/assets/d5b08158-48cf-4d16-81b8-ddf587575bf9" />
